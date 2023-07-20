@@ -1,9 +1,9 @@
 ---
-title: "Contact Us"
+title: "Erreiche Uns"
 draft: false
-description : "this is meta description"
+description : "Nehme über ein einfaches Formular Kontakt mit uns auf und stelle Fragen oder gib Feedback/Anregungen!"
 image: "images/contact.svg"
 layout : contact
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labor.
+Hier kannst du Kontakt mit uns aufnehmen und Fragen stellen oder uns Feedback & Anregungen geben.
