@@ -90,6 +90,6 @@ expire_days = 2
 ####################### banner #######################################
 [params.banner]
 bgImage = "images/banner/banner-bg.svg"
-title = "Hallo, ich bin Felix. <br> Hier werde ich Lifehacks & vieles mehr zum Thema Reisen posten."
+title = "Moin, ich bin Felix. <br> Hier werde ich Lifehacks & vieles mehr zum Thema Reisen posten."
 image = "images/banner/banner-travel.png"
 
