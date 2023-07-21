@@ -1,6 +1,6 @@
 +++
 title = "Für den Zeitvertreib: Wie du kostenlos Amazon Audible & vieles Mehr testen kannst"
-image = "/images/post/post-1.jpg"
+image = "/images/post/ebook.jpg"
 author = "Felix Rater"
 date = 2023-07-19T19:44:00Z
 description = "Eine kleine Anleitung um kostenlos sämtliche Amazon Dienste zu testen."

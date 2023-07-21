@@ -1,6 +1,6 @@
 +++
 title = "Die schönsten Reiseorte, die ich je besucht habe"
-image = "/images/post/post-3.jpg"
+image = "/images/post/bali.jpg"
 author = "Felix Rater"
 date = 2022-11-07T05:03:00Z
 description = "Hier eine kleine Sammlung meiner schönsten Reiseorte:"

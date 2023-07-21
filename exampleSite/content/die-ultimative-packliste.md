@@ -1,6 +1,6 @@
 +++
 title = "Die ultimative Packliste für eine lange Reise"
-image = "/images/post/post-2.jpg"
+image = "/images/post/koffer.jpg"
 author = "Felix Rater"
 date = 2023-07-07T08:55:00Z
 description = "This is meta description"

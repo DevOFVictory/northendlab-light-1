@@ -1,6 +1,6 @@
 +++
 title = "Sprachen lernen auf Reisen: Die Magie der Kommunikation"
-image = "/images/post/post-3.jpg"
+image = "/images/post/talk.png"
 author = "Felix Rater"
 date = 2023-06-06T04:55:00Z
 description = "This is meta description"
