@@ -21,7 +21,8 @@ Als leidenschaftlicher Reiseblogger und Abenteurer ist es mir ein besonderes Anl
 - Unterhaltung für lange Reisestrecken: Egal, ob im Flugzeug, im Zug oder im Auto – die Zeit vergeht wie im Flug, wenn ich in eine spannende Geschichte eintauche.
 - Vielseitige Auswahl: Audible bietet eine riesige Auswahl an Hörbüchern in verschiedenen Genres – von Thrillern über Romane bis hin zu inspirierenden Reiseberichten.
 
-[Jetzt kostenlos testen](https://www.amazon.de/dp/B00NTQ6K7E?tag=maltef-21&linkCode=ur1)
+[Jetzt kostenlos testen](https://www.amazon.de/dp/B00NTQ6K7E?tag=maltef06-21&linkCode=ur1)
+*Als Amazon-Partner verdiene ich an qualifizierten Verkäufen*
 
 --- 
 
@@ -35,7 +36,8 @@ Als leidenschaftlicher Reiseblogger und Abenteurer ist es mir ein besonderes Anl
 - Entdecke lokale Musik: Amazon Music bietet auch Zugang zu regionalen Musikbibliotheken, sodass ich mich noch besser in die Kultur meines Reiseziels eintauchen kann.
 - Stressfreies Streaming: Dank der Musik von Amazon kann ich lange Wartezeiten am Flughafen oder in der Bahn viel entspannter überbrücken.
 
-[Jetzt kostenlos testen](https://www.amazon.de/music/unlimited?tag=maltef-21&linkCode=ur1)
+[Jetzt kostenlos testen](https://www.amazon.de/music/unlimited?tag=maltef06-21)
+*Als Amazon-Partner verdiene ich an qualifizierten Verkäufen*
 
 ---
 
@@ -48,7 +50,8 @@ Als leidenschaftlicher Reiseblogger und Abenteurer ist es mir ein besonderes Anl
 - Für die ganze Familie: Prime Video bietet eine große Auswahl an kinderfreundlichen Inhalten, die vor allem auf langen Reisen eine echte Rettung sein können.
 - Inspiration für neue Reiseziele: Mit Dokumentationen und Reiseberichten auf Prime Video entdecke ich oft neue, spannende Reiseziele für meine Bucket List.
 
-[Jetzt kostenlos testen](https://www.amazon.de/gp/video/primesignup?tag=maltef-21&linkCode=ur1)
+[Jetzt kostenlos testen](https://www.amazon.de/gp/video/primesignup?tag=maltef06-21&linkCode=ur1)
+*Als Amazon-Partner verdiene ich an qualifizierten Verkäufen*
 
 ---
 
@@ -61,7 +64,8 @@ Als leidenschaftlicher Reiseblogger und Abenteurer ist es mir ein besonderes Anl
 - Reiselektüre nach Lust und Laune: Ich kann je nach Stimmung und Interesse zwischen verschiedenen Genres wechseln – von Romantik über Abenteuer bis hin zu Reiseführern.
 - Leichtes Reisen mit einem E-Reader: Mein Kindle ist leicht und handlich, sodass er in jede Tasche passt und auf jeder Reise dabei sein kann.
 
-[Jetzt kostenlos testen](https://www.amazon.de/kindle-dbs/hz/signup?tag=maltef-21&linkCode=ur1)
+[Jetzt kostenlos testen](https://www.amazon.de/kindle-dbs/hz/signup?&tag=maltef06-21)
+*Als Amazon-Partner verdiene ich an qualifizierten Verkäufen*
 
 ---
 
@@ -74,7 +78,8 @@ Als leidenschaftlicher Reiseblogger und Abenteurer ist es mir ein besonderes Anl
 - Elterliche Kontrolle: Eltern können die Inhalte anpassen und die Nutzungsdauer begrenzen, um eine ausgewogene Unterhaltung sicherzustellen.
 - Keine Langeweile mehr: Mit Amazon Kids sind glückliche und unterhaltsame Reisen garantiert!
 
-[Jetzt kostenlos testen](https://www.amazon.de/ftu/plans/MONTHLY?tag=maltef-21&linkCode=ur1&ref_=akp_de_com_oth_acq_pd_dolo_abp)
+[Jetzt kostenlos testen](https://www.amazon.de/freetimetesten?tag=maltef06-21)
+*Als Amazon-Partner verdiene ich an qualifizierten Verkäufen*
 
 Das waren sie also, meine persönlichen Amazon-Dienste, die ich auf keiner meiner Reisen missen möchte. Mit Audible, Amazon Music, Prime Video, Kindle Unlimited und Amazon Kids habe ich immer die beste Unterhaltung und die inspirierendsten Geschichten dabei, die meine Abenteuer rundum bereichern. Probiert sie doch auch auf euren nächsten Reisen aus und erlebt, wie sie eure Abenteuer unvergesslich machen!
 
